@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @harikapalla19
+- 👀 I’m interested in coding and new technology.
+- 🌱 I’m currently learning python and java.
+- 💞️ I’m looking to collaborate on projects on python and webdevelopment.
+- 📫 How to reach me Gmail pallaharika944@gmail.com or phone (6303441540)
+- ⚡ Fun fact:i have good communicatin skills.
+- 
